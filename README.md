@@ -1,0 +1,1 @@
+# teknik-servis-otomasyon-emine-uluyol
